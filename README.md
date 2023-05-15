@@ -1,1 +1,1 @@
-<a href="helabitz" target="_blank"><img src="https://thumbs2.imgbox.com/d8/2d/rjXcG5H5_t.png" alt="ajaanx"/></a>
+<img src="https://thumbs2.imgbox.com/a9/b2/yqvxwzBs_t.gif" alt="ajaanz"/></a>
